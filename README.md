@@ -4,6 +4,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wl6k35sl5ygt56d3ttn74d7eh4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=52ca4e&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
+<img width="400" height="140" src="https://card.yuy1n.io/card/76561199619243040/tokyonight,en,badge,group,games,screenshots,artworks">
+
 <!--
 **FlyingBettaFish/FlyingBettaFish** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
