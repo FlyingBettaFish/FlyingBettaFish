@@ -6,6 +6,8 @@
 
 <img src="https://my-steam.suzuki3.jp/api/card?id=76561199619243040&lang=en&size=medium" width="600">
 
+BIO TBA
+
 <!--
 **FlyingBettaFish/FlyingBettaFish** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
