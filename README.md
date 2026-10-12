@@ -6,7 +6,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wl6k35sl5ygt56d3ttn74d7eh4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=52ca4e&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-ㅤ⋆⭒ ̊。⋆ ʂƚҽαɱ ! ੈ✩‧+ ̊  [<img width="20" height="20" alt="eaf2320f" src="https://github.com/user-attachments/assets/43a588b1-6083-4b4c-8e91-3a8730030c25" />](https://watermelon.crd.co/assets/images/gallery01/eaf2320f.gif?v=14238bdb)
+ㅤ⋆⭒ ̊。⋆ ʂƚҽαɱ ! ੈ✩‧+ ̊ 
 
 <img src="https://my-steam.suzuki3.jp/api/card?id=76561199619243040&lang=en&size=medium" width="600">
 
