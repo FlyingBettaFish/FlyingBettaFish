@@ -26,7 +26,7 @@
 
 ㅤ☆
 
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/d06591f3-64d8-4be1-9f3c-a4ea02d1b745" />
+ㅤ<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/d06591f3-64d8-4be1-9f3c-a4ea02d1b745" />
 
 
 ㅤ╰➜ ❝𝙿𝚕𝚎𝚊𝚜𝚎 𝚗𝚘 𝚏𝚕𝚞𝚏𝚏𝚢 𝚏𝚎𝚎𝚕𝚒𝚗𝚐𝚜 𝚊𝚗𝚢𝚖𝚘𝚛𝚎, '𝚌𝚊𝚞𝚜𝚎 𝚒𝚝 𝚓𝚞𝚜𝚝 
