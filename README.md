@@ -1,12 +1,19 @@
 ## Not sure how any of this works, but will update more later !!
 
 ▃▃▃▃▃▃▃▃▃▃▃
+
 ┊ ┊ ┊ ┊ ┊ ┊
+
 ┊ ┊ ┊ ┊ ˚✩ ⋆｡˚ ✩
+
 ┊ ┊ ┊ ✫
+
 ┊ ┊ ︎✧
+
 ┊ ┊ ✯
+
 ┊ . ˚ ˚✩
+
 
 ㅤ♫⋆｡♪₊˚♬゚。𝙼𝚞𝚜𝚒𝚌 !
 
