@@ -24,13 +24,16 @@
 
 ㅤ┊ ✦ ₊° . αɳყ / ƚԋҽყ / ԋҽ / ʂԋҽ / ιƚ
 
-ㅤ☆
+ㅤ☆ <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/d06591f3-64d8-4be1-9f3c-a4ea02d1b745" />
+
 
 ㅤ╰➜ ❝𝙿𝚕𝚎𝚊𝚜𝚎 𝚗𝚘 𝚏𝚕𝚞𝚏𝚏𝚢 𝚏𝚎𝚎𝚕𝚒𝚗𝚐𝚜 𝚊𝚗𝚢𝚖𝚘𝚛𝚎, '𝚌𝚊𝚞𝚜𝚎 𝚒𝚝 𝚓𝚞𝚜𝚝 
 
 ㅤㅤㅤㅤㅤ𝚏𝚎𝚎𝚕𝚜 𝚎𝚟𝚎𝚗 𝚠𝚘𝚛𝚜𝚎 𝚠𝚑𝚎𝚗 𝙸 𝚐𝚎𝚝 𝚋𝚘𝚛𝚎𝚍 .❞
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ° . ≠ . ıllıllı . ꒷꒦
+
+ㅤ<img width="80" height="80" alt="image" src="https://github.com/user-attachments/assets/c7ca511e-2f61-4a67-ab17-a32083ef423f" /> <img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/950037d8-3aa7-4427-9f12-c95c2437b4ba" />
 
 
 
