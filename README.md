@@ -36,6 +36,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤ<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/34b81577-ca29-4e7d-abc3-80a1319040a6" />
 
+ㅤೃ ✦ ✧ ∗ ❥ ҉ ᥫ᭡ ι αɱ ʂԋყ Ⴆυƚ ι ʅσʋҽ ƚαʅƙιɳɠ ƚσ ρρʅ ! ყσυ ɱιɠԋƚ ԋαʋҽ ƚσ ƈσɱҽ ʂαყ ԋι ϝιɾʂƚ. . . :ρ
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBIO WIP
