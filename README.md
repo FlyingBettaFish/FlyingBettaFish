@@ -25,6 +25,7 @@
 ㅤ┊ ✦ ₊° . αɳყ / ƚԋҽყ / ԋҽ / ʂԋҽ / ιƚ
 
 ㅤ☆
+
 <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/d06591f3-64d8-4be1-9f3c-a4ea02d1b745" />
 
 
