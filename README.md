@@ -11,10 +11,19 @@
 <img src="https://my-steam.suzuki3.jp/api/card?id=76561199619243040&lang=en&size=medium" width="600">
 
 BIO WIP
-
-═══════ ʚ about me ɞ ═══════
-
-ℙ𝕝𝕖𝕒𝕤𝕖 𝕟𝕠 𝕗𝕝𝕦𝕗𝕗𝕪 𝕗𝕖𝕖𝕝𝕚𝕟𝕘𝕤 𝕒𝕟𝕪𝕞𝕠𝕣𝕖, '𝕔𝕒𝕦𝕤𝕖 𝕚𝕥 𝕛𝕦𝕤𝕥 𝕗𝕖𝕖𝕝𝕤 𝕖𝕧𝕖𝕟 𝕨𝕠𝕣𝕤𝕖 𝕨𝕙𝕖𝕟 𝕀 𝕘𝕖𝕥 𝕓𝕠𝕣𝕖𝕕.
+ㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
+ㅤ═══════ ʚ about me ɞ ═══════
+ㅤ┊ ┊ ┊ ┊ ┊
+ㅤ┊ ┊ ┊ ┊ ┊
+ㅤ┊ ┊ ┊ ┊ ★ ₊ . ° . ⋆
+ㅤ┊ ┊ ┊. ✧ ° . • name
+ㅤ┊ ┊° .✫ ﾟ. ꒷꒦ age
+ㅤ┊ ✦ ₊° . pronouns
+ㅤ☆
+ㅤ╰➜ 𝙿𝚕𝚎𝚊𝚜𝚎 𝚗𝚘 𝚏𝚕𝚞𝚏𝚏𝚢 𝚏𝚎𝚎𝚕𝚒𝚗𝚐𝚜 𝚊𝚗𝚢𝚖𝚘𝚛𝚎, '𝚌𝚊𝚞𝚜𝚎 𝚒𝚝 𝚓𝚞𝚜𝚝 
+ㅤ𝚏𝚎𝚎𝚕𝚜 𝚎𝚟𝚎𝚗 𝚠𝚘𝚛𝚜𝚎 𝚠𝚑𝚎𝚗 𝙸 𝚐𝚎𝚝 𝚋𝚘𝚛𝚎𝚍 
+ㅤㅤㅤ° . ≠ . ıllıllı . ꒷꒦
+ㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
 
 <!--
 **FlyingBettaFish/FlyingBettaFish** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
