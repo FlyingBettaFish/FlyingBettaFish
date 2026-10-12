@@ -10,7 +10,7 @@
 
 <img src="https://my-steam.suzuki3.jp/api/card?id=76561199619243040&lang=en&size=medium" width="600">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
 
 ㅤ═══════ ʚ about me ɞ ═══════
 
@@ -32,7 +32,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ° . ≠ . ıllıllı . ꒷꒦
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
 
 <!--
 **FlyingBettaFish/FlyingBettaFish** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
