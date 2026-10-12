@@ -1,17 +1,11 @@
 ## Not sure how any of this works, but will update more later !!
 
 ▃▃▃▃▃▃▃▃▃▃▃
-
 ┊ ┊ ┊ ┊ ┊ ┊
-
 ┊ ┊ ┊ ┊ ˚✩ ⋆｡˚ ✩
-
 ┊ ┊ ┊ ✫
-
 ┊ ┊ ︎✧
-
 ┊ ┊ ✯
-
 ┊ . ˚ ˚✩
 
 
