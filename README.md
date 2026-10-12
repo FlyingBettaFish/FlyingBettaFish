@@ -12,7 +12,7 @@
 
 BIO WIP
 
-ㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
+ㅤㅤㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
 
 ㅤ═══════ ʚ about me ɞ ═══════
 
@@ -32,11 +32,11 @@ BIO WIP
 
 ㅤ╰➜ 𝙿𝚕𝚎𝚊𝚜𝚎 𝚗𝚘 𝚏𝚕𝚞𝚏𝚏𝚢 𝚏𝚎𝚎𝚕𝚒𝚗𝚐𝚜 𝚊𝚗𝚢𝚖𝚘𝚛𝚎, '𝚌𝚊𝚞𝚜𝚎 𝚒𝚝 𝚓𝚞𝚜𝚝 
 
-ㅤ𝚏𝚎𝚎𝚕𝚜 𝚎𝚟𝚎𝚗 𝚠𝚘𝚛𝚜𝚎 𝚠𝚑𝚎𝚗 𝙸 𝚐𝚎𝚝 𝚋𝚘𝚛𝚎𝚍 
+ㅤㅤㅤㅤㅤ𝚏𝚎𝚎𝚕𝚜 𝚎𝚟𝚎𝚗 𝚠𝚘𝚛𝚜𝚎 𝚠𝚑𝚎𝚗 𝙸 𝚐𝚎𝚝 𝚋𝚘𝚛𝚎𝚍 .
 
-ㅤㅤㅤ° . ≠ . ıllıllı . ꒷꒦
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ° . ≠ . ıllıllı . ꒷꒦
 
-ㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
+ㅤㅤㅤ• ┈ • ┈ • ୨୧ • ┈ • ┈ •
 
 <!--
 **FlyingBettaFish/FlyingBettaFish** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
