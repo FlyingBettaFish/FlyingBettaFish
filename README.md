@@ -34,7 +34,7 @@
 ㅤㅤㅤㅤㅤ𝚏𝚎𝚎𝚕𝚜 𝚎𝚟𝚎𝚗 𝚠𝚘𝚛𝚜𝚎 𝚠𝚑𝚎𝚗 𝙸 𝚐𝚎𝚝 𝚋𝚘𝚛𝚎𝚍 .❞
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/34b81577-ca29-4e7d-abc3-80a1319040a6" />
+ㅤㅤㅤㅤㅤㅤㅤ<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/34b81577-ca29-4e7d-abc3-80a1319040a6" />
 
 
 
