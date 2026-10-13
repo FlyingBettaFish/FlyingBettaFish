@@ -5,7 +5,7 @@
 ㅤ♫⋆｡♪₊˚♬゚。𝙼𝚞𝚜𝚒𝚌 ! •₊ ❥︎ ❏ ❜ (๑>◡<๑)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wl6k35sl5ygt56d3ttn74d7eh4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=52ca4e&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
-↜ 𝔾𝕣𝕖𝕒𝕥 𝕨𝕚𝕟𝕕𝕠𝕨 𝕥𝕠 𝕞𝕪 𝕔𝕦𝕣𝕣𝕖𝕟𝕥 𝕞𝕠𝕠𝕕 𝕓𝕥𝕨
+↜ ᵍʳᵉᵃᵗ ʷⁱⁿᵈᵒʷ ᵗᵒ ᵐʸ ᶜᵘʳʳᵉⁿᵗ ᵐᵒᵒᵈ ᵇᵗʷ+..｡*ﾟ+
 
 ㅤ⋆⭒ ̊。⋆ ʂƚҽαɱ ! ੈ✩‧+ ̊ 
 
